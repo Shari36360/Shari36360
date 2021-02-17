@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Shari36360
+- 👀 I’m interested in gaming, nursing and general geek sciences.
+- 🌱 I’m currently learning how to fix the broken humans.
+- 💞️ I’m looking to collaborate on animal crossing spawners.
+- 📫 How to reach me sharibydesign - at the gmails
